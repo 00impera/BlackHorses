@@ -1,4 +1,4 @@
-Let’s craft your Google Play Store listing for the Backhorse Coin app, bodnar. This is your storefront—it needs to be clear, compelling, and optimized for discovery. Here's a full draft you can customize and submit:
+Let’s craft your Google Play Store listing for the Backhorse Coin app, This is your storefront—it needs to be clear, compelling, and optimized for discovery. Here's a full draft you can customize and submit:
 
 ---
 
